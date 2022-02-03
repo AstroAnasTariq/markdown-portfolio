@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+- Reading Books 📚
+- Watching Space Launches 🚀
+- Workout at the Gym 🥇
